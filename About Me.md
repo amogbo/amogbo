@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @amogbo, studying Computational Biology and Finance at the University of Pennsylvania (go Quakers!! 🇺🇸🇺🇸🇺🇸)
+- 👀 I’m interested in blockchain and computational biology (especially genetics)!
